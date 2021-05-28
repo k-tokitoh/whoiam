@@ -1,4 +1,20 @@
-[『2020 年 6 月 30 日にまたここで会おう』瀧本哲史](https://www.amazon.co.jp/2020%E5%B9%B46%E6%9C%8830%E6%97%A5%E3%81%AB%E3%81%BE%E3%81%9F%E3%81%93%E3%81%93%E3%81%A7%E4%BC%9A%E3%81%8A%E3%81%86-%E7%80%A7%E6%9C%AC%E5%93%B2%E5%8F%B2%E4%BC%9D%E8%AA%AC%E3%81%AE%E6%9D%B1%E5%A4%A7%E8%AC%9B%E7%BE%A9-%E6%98%9F%E6%B5%B7%E7%A4%BE%E6%96%B0%E6%9B%B8-%E7%80%A7%E6%9C%AC-%E5%93%B2%E5%8F%B2/dp/4065194288/ref=sr_1_1?adgrpid=102746855671&dchild=1&gclid=CjwKCAjw6qqDBhB-EiwACBs6x__z9CeqUPFuI-i19dAH04yf338USLakl4vuh71x4hQEKDLrNGKM-RoC2uAQAvD_BwE&hvadid=429852098089&hvdev=c&hvlocphy=1009300&hvnetw=g&hvqmt=e&hvrand=16852557178504155657&hvtargid=kwd-897467329322&hydadcr=19792_11038519&jp-ad-ap=0&keywords=2020%E5%B9%B46%E6%9C%8830%E6%97%A5%E3%81%AB%E3%81%BE%E3%81%9F%E3%81%93%E3%81%93%E3%81%A7%E4%BC%9A%E3%81%8A%E3%81%86&qid=1617671228&sr=8-1)
+# 書籍
+
+- [『2020 年 6 月 30 日にまたここで会おう』](https://www.amazon.co.jp/2020%E5%B9%B46%E6%9C%8830%E6%97%A5%E3%81%AB%E3%81%BE%E3%81%9F%E3%81%93%E3%81%93%E3%81%A7%E4%BC%9A%E3%81%8A%E3%81%86-%E7%80%A7%E6%9C%AC%E5%93%B2%E5%8F%B2%E4%BC%9D%E8%AA%AC%E3%81%AE%E6%9D%B1%E5%A4%A7%E8%AC%9B%E7%BE%A9-%E6%98%9F%E6%B5%B7%E7%A4%BE%E6%96%B0%E6%9B%B8-%E7%80%A7%E6%9C%AC-%E5%93%B2%E5%8F%B2/dp/4065194288/ref=sr_1_1?adgrpid=102746855671&dchild=1&gclid=CjwKCAjw6qqDBhB-EiwACBs6x__z9CeqUPFuI-i19dAH04yf338USLakl4vuh71x4hQEKDLrNGKM-RoC2uAQAvD_BwE&hvadid=429852098089&hvdev=c&hvlocphy=1009300&hvnetw=g&hvqmt=e&hvrand=16852557178504155657&hvtargid=kwd-897467329322&hydadcr=19792_11038519&jp-ad-ap=0&keywords=2020%E5%B9%B46%E6%9C%8830%E6%97%A5%E3%81%AB%E3%81%BE%E3%81%9F%E3%81%93%E3%81%93%E3%81%A7%E4%BC%9A%E3%81%8A%E3%81%86&qid=1617671228&sr=8-1)
+- 瀧本哲史
+- 2020
+
+# なぜ読んだ
+
+- いまの仕事をやっていて「1 回きりの人生、これに時間をつかうよりいい在り方があるかもしれない」という違和感があった
+- なんか刺激をもらえるかなとおもった
+
+# なにを得た
+
+- ばっちり心に火が灯った
+- 行動を起こして、より納得感のある仕事に移ることになった
+
+# メモ
 
 - なんかのネット記事を読んで、「種を蒔く人なんだ」というイメージはあった
 - あとがきの「"理屈のひと"である以上に"情のひと"」っての、感じたな
